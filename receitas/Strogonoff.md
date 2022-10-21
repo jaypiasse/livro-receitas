@@ -13,6 +13,6 @@
 ### **Modo de Preparo**
 
 1. Em uma panela derreta a manteiga, doure a cebola, misture com frango e deixe cozinhar.
-2. Quando o frango estiver dourado coloque o ketchup e a mostarda, mexa bem.
+2. Quando o frango estiver dourado coloque o ketchup e a mostarda, mexa bem.   
 3. Adicione o creme de leite e desligue o fogo antes de fever.
 4. Sirva com arroz branco e batata palha.
